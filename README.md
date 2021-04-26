@@ -1,0 +1,1 @@
+# Turkiyeden-Haberler-app-policy
